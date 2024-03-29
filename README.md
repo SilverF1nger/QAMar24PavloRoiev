@@ -1,1 +1,0 @@
-# QAMar24PavloRoiev
